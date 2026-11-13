@@ -1,0 +1,5 @@
+- Sandro Lucas Souza 
+- Rhayla Abreu de Sousa
+- Thárik Luan Teixeira Miguel
+- Pedro Henrique Tavares Magalhães
+- ⁠Vitória da Costa Merlino
